@@ -1,0 +1,1 @@
+# Parciales_de_IA_2-2024
